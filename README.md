@@ -4,15 +4,17 @@
 
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
+[亚洲在线最新地址 点击此处](https://99u82.xyz)
+
 [亚洲在线最新地址 点击此处](https://99u84.xyz)
 
-[亚洲在线最新地址 点击此处](https://99u85.xyz)
+[亚洲在线最新地址 点击此处](https://99u82.xyz)
 
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://8dz25.xyz
+最新地址发布页：https://8dz28.xyz
 
 [如网站被屏蔽，请下载chrome浏览器](https://www.google.cn/intl/zh-CN/chrome/)
 
