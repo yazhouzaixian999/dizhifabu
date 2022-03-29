@@ -4,17 +4,17 @@
 
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
-[亚洲在线最新地址 点击此处](https://99v58.xyz)
+[亚洲在线最新地址 点击此处](https://99v63.xyz)
 
-[亚洲在线最新地址 点击此处](https://99v60.xyz)
+[亚洲在线最新地址 点击此处](https://99v64.xyz)
 
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://8dz30.xyz
+最新地址发布页：https://8dz32.xyz
 
-[如网站被屏蔽，请下载chrome浏览器](https://www.google.cn/intl/zh-CN/chrome/)
+[如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn/)
 
 如果以上地址均不可用，索取最新地址,请发邮件到 <52dizhi@mail.com>
 
