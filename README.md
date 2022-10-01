@@ -14,7 +14,7 @@
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://99yzdz12.com (99亚洲地址)
+最新地址发布页：https://99yzdz19.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn/)
 
