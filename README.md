@@ -5,9 +5,9 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91sp45.xyz
-## https://91sp46.xyz
-## https://91sp47.xyz
+## https://91sp48.xyz
+## https://91sp49.xyz
+## https://91sp50.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
