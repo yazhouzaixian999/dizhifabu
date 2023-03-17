@@ -5,14 +5,22 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91sp83.xyz
-## https://91sp84.xyz
-## https://91sp85.xyz
+## https://91sp92.xyz
+## https://028ax.xyz
+## https://890ax.xyz
+## https://91sp93.xyz
+## https://91sp94.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
+<<<<<<< .mine
 最新地址发布页：https://99yzdz40.com (99亚洲地址)
+||||||| .r13033
+最新地址发布页：https://99yzdz35.com (99亚洲地址)
+=======
+最新地址发布页：https://99yzdz41.com (99亚洲地址)
+>>>>>>> .r13066
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
