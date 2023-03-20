@@ -5,11 +5,11 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91sp98.xyz
-## https://014ax.xyz
-## https://861ax.xyz
-## https://91sp99.xyz
-## https://269ax.xyz
+## https://826ax.xyz
+## https://637ax.xyz
+## https://461ax.xyz
+## https://234fk.xyz
+## https://120fk.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
