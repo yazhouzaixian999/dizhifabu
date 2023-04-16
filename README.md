@@ -5,16 +5,16 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://458fk.xyz
-## https://897fk.xyz
-## https://807fk.xyz
-## https://162fk.xyz
-## https://176fk.xyz
+## https://018fk.xyz
+## https://257fk.xyz
+## https://693fk.xyz
+## https://832fk.xyz
+## https://793fk.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://99yzdz41.com (99亚洲地址)
+最新地址发布页：https://xbdizhi2.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
