@@ -5,11 +5,11 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://485fk.xyz
-## https://541fk.xyz
-## https://103fk.xyz
-## https://649fk.xyz
-## https://184fk.xyz
+## https://973fk.xyz
+## https://209fk.xyz
+## https://840fk.xyz
+## https://874fk.xyz
+## https://460fk.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
