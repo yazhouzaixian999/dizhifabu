@@ -5,11 +5,11 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://763yyds.xyz
-## https://219yyds.xyz
-## https://936yyds.xyz
-## https://651yyds.xyz
-## https://305yyds.xyz
+## https://568yyds.xyz
+## https://067yyds.xyz
+## https://359yyds.xyz
+## https://935yyds.xyz
+## https://390yyds.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
