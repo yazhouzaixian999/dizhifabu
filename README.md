@@ -6,10 +6,10 @@
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
 ## https://695yz.xyz
-## https://639yz.xyz
-## https://160yz.xyz
 ## https://283yz.xyz
-## https://079yz.xyz
+## https://353yz.xyz
+## https://025yz.xyz
+## https://489yz.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
