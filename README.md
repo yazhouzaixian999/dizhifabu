@@ -5,16 +5,16 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://ikun226.xyz
-## https://ikun723.xyz
-## https://ikun650.xyz
-## https://ikun291.xyz
-## https://ikun973.xyz
+## https://ikun213.xyz
+## https://ikun372.xyz
+## https://ikun981.xyz
+## https://ikun968.xyz
+## https://ikun168.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://xbdizhi28.com (99亚洲地址)
+最新地址发布页：https://xbdizhi58.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
