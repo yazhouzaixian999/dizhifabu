@@ -5,11 +5,11 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://ikun635.xyz
-## https://ikun221.xyz
-## https://ikun318.xyz
-## https://ikun267.xyz
-## https://ikun616.xyz
+## https://ikun619.xyz
+## https://ikun506.xyz
+## https://ikun369.xyz
+## https://ikun929.xyz
+## https://ikun516.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
