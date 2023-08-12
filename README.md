@@ -5,11 +5,11 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://jb727.xyz
-## https://jb603.xyz
-## https://jb513.xyz
-## https://jb725.xyz
-## https://jb583.xyz
+## https://jb566.xyz
+## https://jb313.xyz
+## https://jb369.xyz
+## https://jb606.xyz
+## https://jb721.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
