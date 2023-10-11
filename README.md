@@ -5,10 +5,10 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://yyzz300.xyz
-## https://yyzz931.xyz
-## https://yyzz505.xyz
-## https://yyzz276.xyz
+## https://yyzz752.xyz
+## https://yyzz650.xyz
+## https://yyzz198.xyz
+## https://yyzz152.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
