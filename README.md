@@ -5,15 +5,15 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://yyzz719.xyz
-## https://yyzz972.xyz
-## https://yyzz589.xyz
-## https://yyzz295.xyz
+## https://yyzz737.xyz
+## https://yyzz508.xyz
+## https://yyzz710.xyz
+## https://yyzz780.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://xbdizhi95.com (99亚洲地址)
+最新地址发布页：https://xbdizhi98.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
