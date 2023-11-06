@@ -5,12 +5,12 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://66uu96.xyz
-## https://66pp97.xyz
-## https://66ww98.xyz
-## https://66zz99.xyz
-## https://66pp6.xyz
-## https://66ss8.xyz
+## https://66bb66.xyz
+## https://66tt68.xyz
+## https://66pp77.xyz
+## https://66nn81.xyz
+## https://66uu82.xyz
+## https://66bb83.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
