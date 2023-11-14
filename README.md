@@ -5,12 +5,12 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://800kppp13.xyz
-## https://521qqtt85.xyz
-## https://800kpff16.xyz
-## https://521qqaa86.xyz
-## https://800kpjj18.xyz
-## https://521qqff88.xyz
+## https://800kpgg26.xyz
+## https://800kpff28.xyz
+## https://521qqgg90.xyz
+## https://800kphh55.xyz
+## https://521qqpp91.xyz
+## https://800kpcc58.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
