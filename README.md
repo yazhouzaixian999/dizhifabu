@@ -5,17 +5,17 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://800kpgg26.xyz
-## https://800kpff28.xyz
-## https://521qqgg90.xyz
-## https://800kphh55.xyz
-## https://521qqpp91.xyz
-## https://800kpcc58.xyz
+## https://521qquu93.xyz
+## https://800kpww68.xyz
+## https://521qqrr95.xyz
+## https://800kptt69.xyz
+## https://521qqnn96.xyz
+## https://800kppp77.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://52dizhi8.com (99亚洲地址)
+最新地址发布页：https://52dizhi28.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
