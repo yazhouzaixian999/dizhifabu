@@ -5,12 +5,12 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91ss69bb.xyz
-## https://91ss77tt.xyz
-## https://91ss81yy.xyz
-## https://91ss82rr.xyz
-## https://91ss83zz.xyz
-## https://91ss85rr.xyz
+## https://91ss91rr.xyz
+## https://91ss92dd.xyz
+## https://91ss93nn.xyz
+## https://91ss95zz.xyz
+## https://91ss96tt.xyz
+## https://91ss97mm.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
