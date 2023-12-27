@@ -5,16 +5,15 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 紧急提醒！近期非法劫持跳转等活动频发
-
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91ss83ss.xyz
-## https://91ss85ff.xyz
-## https://16kp.16kp8gg.xyz
-## https://91ss86tt.xyz
-## https://91ss88vv.xyz
-## https://16kp.16kp13uu.xyz
+## https://91ss89dd.xyz
+## https://91ss90zz.xyz
+## https://16kp.16kp16qq.xyz
+## https://91ss91aa.xyz
+## https://91ss92tt.xyz
+## https://16kp.16kp18mm.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
