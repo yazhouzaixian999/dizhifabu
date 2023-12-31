@@ -8,17 +8,17 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://16kp.16kp69kk.xyz
-## https://16kp.16kp77uu.xyz
-## https://16kp.16kp82ss.xyz
-## https://16kp.16kp83ss.xyz
-## https://16kp.16kp85gg.xyz
-## https://16kp.16kp86cc.xyz
+## https://16kp.16kp88ww.xyz
+## https://16kp.16kp89aa.xyz
+## https://16kp.16kp8.com
+## https://16kp.16kp90gg.xyz
+## https://16kp.16kp92dd.xyz
+## https://16kp.16kp93yy.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://52dizhi69.com (99亚洲地址)
+最新地址发布页：https://52dizhi82.com (99亚洲地址)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
