@@ -8,17 +8,17 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.sstt1177.work
-## https://91fby.jjuu8833.com
-## https://91fby.ddaa5566.xyz
-## https://91fby.jjkk8833.xyz
-## https://91fby.sscc2277.work
-## https://91fby.pptt9966.xyz
+## https://91fby.sstt8866.xyz
+## https://91fby.ssff6611.work
+## https://91fby.sscc1177.xyz
+## https://91fby.ssff2277.xyz
+## https://91fby.aass7733.work
+## https://91fby.aass6611.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://91jq16.com (就要激情)
+最新地址发布页：https://91jq28.com (就要激情)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
