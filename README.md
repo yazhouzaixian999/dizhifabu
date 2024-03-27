@@ -8,12 +8,12 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.bbqq5500.link
-## https://91fby.yyxx1155.xyz
-## https://91fby.zzzz3333.xyz
-## https://91fby.ddff6655.link
-## https://91fby.hhss2255.xyz
-## https://91fby.hhaa8855.xyz
+## https://91fby.qqaa7755.link
+## https://91fby.kkyy1199.xyz
+## https://91fby.uuaa8855.com
+## https://91fby.eeuu9988.xyz
+## https://91fby.eeaa1188.link
+## https://91fby.eeqq1122.xyz
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
@@ -30,4 +30,4 @@
 
 移动线路不稳定，建议换电信或联通网络观看更流畅。
 
-海外网络永久看片地址:https://16kp.com
+海外网络永久看片地址:https://91JQ.com
