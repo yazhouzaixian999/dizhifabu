@@ -10,10 +10,10 @@
 ## :star: :point_right: 【亚洲在线最新地址】 ：
 ## https://kkpp8811.link
 ## https://ttyy6611.link
-## https://bbkk8888.link
 ## https://ppzz3333.link
 ## https://mmbb3388.link
 ## https://jjpp7700.com
+## https://bbjj1166.link
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
