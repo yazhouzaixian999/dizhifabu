@@ -8,12 +8,12 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://172.247.132.230:7003/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://ppjj3300.link
-## https://yyqq9955.link
-## https://zzaa5522.link
-## https://aayy7788.link
-## https://mmhh3333.link
-## https://kkqq7755.com
+## https://ccmm6688.link
+## https://ccqq5533.xyz
+## https://aazz3311.link
+## https://ggqq6611.link
+## https://uukk3399.link
+## https://ttjj6600.link
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
