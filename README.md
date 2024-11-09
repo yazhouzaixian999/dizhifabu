@@ -8,12 +8,12 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.200.42:7009/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.jj6667jj.xyz
-## https://91fby.jj6667jj.link
-## https://91fby.jj7556jj.xyz
-## https://91fby.jj7556jj.link
-## https://91fby.jj5663jj.xyz
-## https://91fby.jj5663jj.link
+## https://91fby.jj6558jj.xyz
+## https://91fby.jj6558jj.link
+## https://91fby.jj2880jj.xyz
+## https://91fby.jj2880jj.link
+## https://91fby.jj9115jj.xyz
+## https://91fby.jj9115jj.link
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
