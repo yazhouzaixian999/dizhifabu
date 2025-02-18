@@ -8,16 +8,16 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.200.44:7011/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.jq28jq.work
-## https://91fby.jq29jq.work
-## https://91fby.jq30jq.work
-## https://91fby.jq31jq.work
-## https://91fby.jq32jq.work
+## https://91fby.jq33jq.work
+## https://91fby.jq34jq.work
+## https://91fby.jq35jq.work
+## https://91fby.jq36jq.work
+## https://91fby.jq37jq.work
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://jqdizhi60.com (91JQ就要激情)
+最新地址发布页：https://jqdizhi59.com (91JQ就要激情)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
