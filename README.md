@@ -5,13 +5,13 @@
 亚洲在线站长建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 紧急提醒！近期非法劫持跳转等活动频发
-如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.200.44:7011/)
+如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://107.149.236.5:7017/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.91jq296.work
-## https://91fby.91jq297.work
-## https://91fby.91jq298.work
-## https://91fby.91av.work
+## https://91fby.91av0.work
+## https://91fby.91av1.work
+## https://91fby.91av2.work
+## https://91fby.91av3.work
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
