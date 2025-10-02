@@ -8,15 +8,15 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://107.149.236.5:7017/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.91jq569.work:16888
-## https://91fby.91jq570.work:16888
-## https://91fby.91jq571.work:16888
-## https://91fby.91jq572.work:16888
+## https://91fby.91jq573.work:16888
+## https://91fby.91jq574.work:16888
+## https://91fby.91jq575.work:16888
+## https://91fby.91jq576.work:16888
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://jqdizhi117.com (91JQ就要激情)
+最新地址发布页：https://jqdizhi115.com (91JQ就要激情)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
