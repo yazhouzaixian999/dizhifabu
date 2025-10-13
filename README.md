@@ -8,10 +8,10 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://107.149.236.5:7017/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.91jq613.work:16888
-## https://91fby.91jq614.work:16888
-## https://91fby.91jq615.work:16888
-## https://91fby.91jq616.work:16888
+## https://91fby.91jq617.work:16888
+## https://91fby.91jq618.work:16888
+## https://91fby.91jq619.work:16888
+## https://91fby.91jq620.work:16888
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
