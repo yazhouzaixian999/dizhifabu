@@ -8,15 +8,15 @@
 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://107.149.236.5:7017/)
 
 ## :star: :point_right: 【亚洲在线最新地址】 ：
-## https://91fby.91jq778.work:16888
-## https://91fby.91jq779.work:16888
-## https://91fby.91jq38.casa:16888
-## https://91fby.91jq780.work:16888
+## https://91fby.91jq781.work:16888
+## https://91fby.91jq39.casa:16888
+## https://91fby.91jq782.work:16888
+## https://91fby.91jq783.work:16888
 
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://jqfabu14.com (91JQ就要激情)
+最新地址发布页：https://jqfabu12.com (91JQ就要激情)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
