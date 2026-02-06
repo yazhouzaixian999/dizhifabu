@@ -18,7 +18,7 @@
 
 亚洲在线提醒您请注意，永久地址一定要加https
 
-最新地址发布页：https://jqfabu27.com (91JQ就要激情)
+最新地址发布页：https://jqfabu30.com (91JQ就要激情)
 
 [如网站被屏蔽，请下载火狐隐私浏览器](https://www.firefox.com.cn)
 
